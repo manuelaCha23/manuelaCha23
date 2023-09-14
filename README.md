@@ -5,6 +5,8 @@
 - 📫 How to reach me try on discord: mariana Chavarria#0184
 I recently created my twitter too: @manuelaCha23
 
+I'm planning on BTC to 122,222$ on December 12th 2025. What do you think ?
+
 Feel free to ping me where-ever
 
 <!---
